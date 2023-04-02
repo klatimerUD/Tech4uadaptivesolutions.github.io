@@ -1,1 +1,1 @@
-# Tech4uadaptivesolutions.github.io
+# tech4uadaptivesolutions.github.io
